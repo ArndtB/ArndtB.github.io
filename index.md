@@ -11,3 +11,8 @@ Leonard Simon Nimoy (geb. 26. März 1931 in West End, Boston, Massachusetts; †
 * Verheiratet mit Sandra Zober von 1954 bis 1987 und Susan Bay ab dem 01.01.1989
 * Verstorben am 27. Februar 2015 in seinem Haus in Los Angeles
 
+## Das ist sein Motto 
+
+> Live long and prosper!
+
+
