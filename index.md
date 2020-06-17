@@ -15,4 +15,5 @@ Leonard Simon Nimoy (geb. 26. März 1931 in West End, Boston, Massachusetts; †
 
 > Live long and prosper!
 
+<img src="https://upload.wikimedia.org/wikipedia/commons/2/23/Leonard_Nimoy_mid_1960s.JPG"/>
 
